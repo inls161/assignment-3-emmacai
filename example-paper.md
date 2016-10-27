@@ -138,6 +138,17 @@ a more positive light, regardless of your political views. Memes in this
 way can effect your political beliefs, and thus, disrupt “normal”
 political socialization.
 
+----------- ------- --------------- -------------------------
+   First    row                2008 Sarah Palin Russia 
+
+  Second    row                2013 Pepper Spray Cop
+  
+  Fourth    row                2016 Hillary Clinton Cell Phone
+  
+   Third    row                2016 Ted Cruz Zodiac Killer
+----------- ------- --------------- -------------------------
+Table:  Examples of Political Memes.
+
 In the age of the Internet, memes are a powerful way that young people
 can express their beliefs and make a political statement. The seemingly
 constant subjection to political opinions on the Internet can have an
